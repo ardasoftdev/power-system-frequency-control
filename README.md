@@ -100,7 +100,7 @@ Mihai Vlad
 
 Perrick Noula Nbounga
 
-Arda Gur Deniz
+Arda Deniz Gur
 
 Destiny Imariabe
 
